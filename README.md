@@ -4,7 +4,7 @@
 
 · Right now I'm working on Reviving flash games as adobe Stopped supporting them 🛠
 
-· Currently working out with HOP! by returning their old flash games 📌 (will be available soon)
+· Currently working out with HOP! by returning their old flash games with ruffle 📌 (will be available soon)
 
 · If you need anything Do not hesitate to ask 👾
 
