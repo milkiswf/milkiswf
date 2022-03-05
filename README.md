@@ -6,8 +6,6 @@
 
 · Currently working out with HOP! by returning their old flash games 📌 (will be available soon)
 
-· I'm looking to collaborate with ruffle team in the future 🫂
-
 · If you need anything Do not hesitate to ask 👾
 
 ·You can also find me here
