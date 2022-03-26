@@ -8,8 +8,10 @@
 
 · If you need anything Do not hesitate to ask 👾
 
-·You can also find me here
+·You can also find me here:
+
 discord - https://discord.com/users/532594707692519425
+
 youtube - https://www.youtube.com/channel/UCa-3hf3uLxiNhhmjDXygqxA
 
 and that's it!
