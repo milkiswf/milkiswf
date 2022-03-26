@@ -9,8 +9,7 @@
 · If you need anything Do not hesitate to ask 👾
 
 ·You can also find me here
-discord - milki#9679
+discord - https://discord.com/users/532594707692519425
 youtube - https://www.youtube.com/channel/UCa-3hf3uLxiNhhmjDXygqxA
-spotify - https://open.spotify.com/user/0wjn2lgm123u5cuwe0o7f25d3?si=ebd8a27f995c4202
 
 and that's it!
